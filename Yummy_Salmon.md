@@ -13,7 +13,7 @@
 3. Add sugar slowly and stir it in until it stops dissolving.
 4. Marinate for at least 30 minutes.
 5. Preheat oven to 425F.
-6. If desired, pour off excess marinate until there's just a 1/4" or so left in the pan
-6. Cook for 23 minutes, or until meat thermometer in the center reads 145 deg F.
+6. If desired, pour off excess marinate until there's just a 1/4" or so left in the pan.
+7. Cook for 23 minutes, or until meat thermometer in the center reads 145 deg F.
 
 When done right, this makes a slightly sweet, slightly salty glaze and is delicious all the way through.
