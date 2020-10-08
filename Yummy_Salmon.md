@@ -3,13 +3,13 @@
 ## Ingredients
 
 1. 4-20 oz. Slab o' Salmon
-2. 1 cSoy Sauce (Reduced salt for ever so slightly healthier version)
+2. 1+ c Soy Sauce (reduced salt for ever so slightly healthier version)
 3. 1/2 c Sugar
 
 ## Recipe
 
 1. Place salmon in a baking vessel, deep enough to cover the fish and room for slop.  
-2. Cover with soy sauce (I know, it uses a lot, but it'll be OK.)
+2. Cover with soy sauce (I know, it uses a lot, but it'll be OK.). You want all the flesh submerged.
 3. Add sugar slowly and stir it in until it stops dissolving.
 4. Marinate for at least 30 minutes.
 5. Preheat oven to 425F.
